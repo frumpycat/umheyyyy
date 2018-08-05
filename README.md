@@ -1,2 +1,4 @@
 # umheyyyy
-how did i get here
+
+just keeping it cute n sassy
+like and follow me on Google+ thanks
